@@ -1,4 +1,4 @@
-![Banner](https://github.com/rickitiicki/rickitiicki/blob/main/banner.png?raw=true)
+![Banner](https://github.com/rickitiicki/rickitiicki/blob/main/IMG_0667.jpeg?raw=true)
 
 ### Hi there 👋, I'm Слава
 
